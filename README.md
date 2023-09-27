@@ -1,0 +1,1 @@
+# PAK-NEWSCHNL-3.0
